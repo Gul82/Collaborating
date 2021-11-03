@@ -1,4 +1,4 @@
-# Ich bin Gül und komme aus Hamburg.
+# Ich bin Mezekir und komme aus Eritrea.
 
 # Kuchen
 
